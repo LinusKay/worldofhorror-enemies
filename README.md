@@ -17,5 +17,5 @@ MAC: ??? i have no idea my bad ???
 ## Content
 
 #### Utility Pole Woman
-![utility pole woman image](https://i.imgur.com/zY4sv0k.png)
+![utility pole woman image](https://i.imgur.com/AZn8oQu.png)
 *From On the Utility Pole, from Mimi's Tales of Terror by Junji Ito, Hirokatsu Kihara, Ichiro Nakayama*
